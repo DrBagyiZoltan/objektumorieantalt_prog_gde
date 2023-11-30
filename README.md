@@ -1,0 +1,1 @@
+# objektumorieantalt_prog_gde
